@@ -9,7 +9,8 @@ Inspired by him, a **World Conference Against Racism** was held in Africa to rai
 
 Years later, **Umar Barghouti** revived the struggle by uniting Muslims to **boycott Israel** through a movement called **BDS (Boycott, Divestment, and Sanctions)**. Its target was Israeli companies—not American ones like Pepsi or KFC—so it faded from memory until **2023**, when Israel’s brutal war on Palestine reignited it.
 
-As American corporations like **KFC, Starbucks, and Burger King** publicly supported Israel, global outrage grew. People across faiths—**Muslims, Christians, atheists, and even Jews**—revived the **BDS boycott**,
+But after six days of this attack, something strange happened: the famous American company KFC announced that they would provide free burgers to thousands of Israeli soldiers, and that every Israeli soldier would also receive a special discount on their burger.In the same way, major American companies announced their support for Israel, such as Burger King, Starbucks, and so on.
+ People across faiths—**Muslims, Christians, atheists, and even Jews**—revived the **BDS boycott**,
 
 ### __Debate begins__
  making it the **largest campaign in world history**. Yet it remains **controversial**, dividing Muslims between those who see it as symbolic and those who view it as a moral duty.
