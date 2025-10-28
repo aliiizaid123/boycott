@@ -19,9 +19,9 @@ But after six days of this attack, something strange happened: the famous Americ
 
 ### **Debate Summary: Impact of the Boycott Campaign**
 
-[**Those who oppose the boycott argue that for the past two years, this campaign has been ongoing and Israel has not suffered any losses. They call it pointless and ineffective, claiming it changes nothing on the ground and only gives people a false sense of activism.**](https://github.com/aliiizaid123/boycott/new/main?readme=1)
+[**for the past two years, this campaign has been ongoing and Israel has not suffered any losses. It is pointless and ineffective, claiming it changes nothing on the ground and only gives people a false sense of activism.**](https://github.com/aliiizaid123/boycott/new/main?readme=1)
 
-**In response, boycott advocates firmly reject this notion, stating that the campaign has caused enormous damage to Israel. They point out that Israel has spent millions trying to stop this movement because it knows that if the Muslim-led boycott ends, it would gain billions. Since the start of this conflict, major global companies have withdrawn from Israel — the biggest example being Intel, which ended a $25 billion deal, marking the largest deal cancellation in Israel’s history. The pressure has been so immense that nearly six thousand Israeli companies have shut down, and the total losses have reached around $300 billion, proving that the boycott is working and hitting where it hurts the most.**
+** the campaign has caused enormous damage to Israel. They point out that Israel has spent millions trying to stop this movement because it knows that if the Muslim-led boycott ends, it would gain billions. Since the start of this conflict, major global companies have withdrawn from Israel — the biggest example being Intel, which ended a $25 billion deal, marking the largest deal cancellation in Israel’s history. The pressure has been so immense that nearly six thousand Israeli companies have shut down, and the total losses have reached around $300 billion, proving that the boycott is working and hitting where it hurts the most.**
 **When we consider all the total losses of this war, it amounts to about $300 billion, and so far, Israel has killed 66,000 Palestinians, meaning that for every Palestinian life lost, Israel has incurred a loss of $5 million. 
 
 ---
@@ -44,7 +44,7 @@ But after six days of this attack, something strange happened: the famous Americ
 **That’s not hypocrisy — it’s strategy. No boycott in history has ever meant rejecting everything from the enemy. Gandhi boycotted British goods but used their railways and medicine. Einstein renounced Hitler but not German technology. The goal isn’t blind rejection — it’s precision. A boycott is a weapon, and victory comes not from throwing every stone, but from striking where it hurts the most.**
 
 ---
-[**I feel that the example of this boycott is such that if a person puts a Gun in my head to kill me, and I pick up a stone to fight him.**](https://github.com/aliiizaid123/boycott/new/main?readme=1)
+[**I feel that the example of this boycott is such that if a person puts a Gun in my head to kill me, and I start the wait for his shots.**](https://github.com/aliiizaid123/boycott/new/main?readme=1)
 
 ** This is absolutely true. But my point is that if a person puts a glass in my head to kill me, and I pick up a stone to fight him.” **
 
